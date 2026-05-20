@@ -1,0 +1,2 @@
+# mechankicia-privacy
+Polityka prywatności
